@@ -1,4 +1,4 @@
-#  
+#  smart Scripts for dig deeper for brainrots is the best dig deeper for brainrots Script, featuring auto-heal and auto-farm. Safe and powerful for all
 
 
 
